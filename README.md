@@ -4,3 +4,6 @@ On average, the seasonal influenza directly costs U.S. employers $10+ billion du
 
 A large number of these cases are attributed to the human hand. Lackadaisical attitudes towards washing hands combined with the habit of eating food during computer use are a recipe for misery. Healthkey promotes your well-being by automatically sanitizing your keyboard when it is not in use, preventing the transmission of pathogens from your hand to your mouth as well as to other people. With its easy-to-use system, Healthkey keeps you healthy.
 
+Product concept video found at https://youtu.be/F4j7RQu8qIs
+
+Demo video found at https://youtu.be/_PbCMottWjA
